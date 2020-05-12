@@ -1,0 +1,2 @@
+# rudy
+Berjuang untuk bersama
